@@ -41,7 +41,7 @@
 17. Espolvoree con canela y decore con palitos de cnela y/o estrellas de anis.
 
 #### Video
--https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=video&cd=&ved=2ahUKEwjVhpnZp9T0AhUcRjABHYFhDZAQtwJ6BAgGEAI&url=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DOS8vpmV-iXU&usg=AOvVaw29b3KMGWWtegZ28Bv4NehF
+https://www.youtube.com/watch?v=WXs5RQNU-eU
 
 #### Referencias:
 https://www.recetaspuertorico.com/recetas/receta-tipica-de-arroz-con-dulce/
